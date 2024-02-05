@@ -1,2 +1,2 @@
 # 💫 About Me:
-Hi there, I'm a full stack developer with a passion for learning and a curious mind. I have a particular interest in artificial intelligence and machine learning, as well as electrical engineering. In my free time, you'll find me with my nose buried in a book, always eager to expand my knowledge and understanding of the world. I'm constantly striving to improve my skills and stay up-to-date with the latest technologies, and I'm excited to see where my learning journey takes me next.
+Suiiiiiiii
